@@ -1,3 +1,3 @@
 ## Welcome 🍏
 
-[](https://i.imgur.com/LtPntte.png)
+![](https://i.imgur.com/LtPntte.png)
